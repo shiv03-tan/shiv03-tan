@@ -78,7 +78,7 @@
 📧 Email: shivanikumaribit1998@gmail.com  
 🔗 LinkedIn: [shivani-kumari-0ab2931b0](https://www.linkedin.com/in/shivani-kumari-0ab2931b0)  
 🔗 GitHub: [shiv03-tan](https://github.com/shiv03-tan)  
-🔗 Google Scholar: *(Add your link if available)*
+🔗 Google Scholar: [https://scholar.google.com/citations?user=0HL3iw0AAAAJ]
 
 ---
 
