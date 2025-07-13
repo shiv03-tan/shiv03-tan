@@ -4,7 +4,7 @@
 🎓 PhD in Artificial Intelligence, YunTech, Taiwan  
 💡 Research: Non-invasive glucose monitoring, OCTA & MRI image analysis, LLM-based clinical reporting  
 📍 Taiwan | 📧 shivanikumaribit1998@gmail.com  
-🔗 [LinkedIn](https://www.linkedin.com/in/shivani-kumari-0ab2931b0) | [GitHub](https://github.com/shiv03-tan)
+🔗 [LinkedIn](https://www.linkedin.com/in/shivani-kumari-0ab2931b0) | [GitHub](https://github.com/shiv03-tan) | [Google Scholar]((https://scholar.google.com/citations?user=0HL3iw0AAAAJ)
 
 ---
 ## 🔬 Current Research Projects
